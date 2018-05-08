@@ -1,3 +1,3 @@
 # hello-world
-so bored need to stimulate my brain
-wondering what i am doing here
+So bored need to stimulate my brain.
+I am wondering what i am doing here?
